@@ -1,4 +1,4 @@
 # Plain-text-to-handwriting
 
-Join me at www.dakshtrehan.com | www.linkedin.com/in/dakshtrehan
+Join me at www.dakshtrehan.com | www.linkedin.com/in/dakshtrehan | www.medium.com/@dakshtrehan
 
